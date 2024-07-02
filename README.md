@@ -1,4 +1,5 @@
-![banner2](https://github.com/Febiecode/Febiecode/assets/93641901/39f52948-5698-4c60-bbf0-e5911d92bf68)
+![banner_dark](https://github.com/Febiecode/Febiecode/assets/93641901/2d436f05-f2b9-41c9-9049-15c1e5380251)
+
 
 
 
