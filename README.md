@@ -1,4 +1,5 @@
-![banner](https://github.com/Febiecode/Febiecode/assets/93641901/b34e2067-69f7-4549-b92c-2febad472c0b)
+![banner2](https://github.com/Febiecode/Febiecode/assets/93641901/39f52948-5698-4c60-bbf0-e5911d92bf68)
+
 
 
 # 💫 About Me:
